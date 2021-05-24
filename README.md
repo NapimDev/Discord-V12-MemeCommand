@@ -1,2 +1,3 @@
-# Discord-V12-MemeCommand
-NapimDev Coşuyor !!!!
+# NapimDev
+
+<3 Anticode İçin Hazırlandı
